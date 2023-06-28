@@ -1,4 +1,4 @@
-### Hi there 👋
+### Fsrancis L Tetteh 👋
 
 <!--
 **1985francis/1985francis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
